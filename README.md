@@ -19,7 +19,7 @@ Thank you :)
 
   [My LinkedIn](https://www.linkedin.com/in/sopeachydev/)
   
-  [My web site](https://www.sopeachy.dev/)
+  [My web site](https://www.sopeachy.dev/](http://sopeachydev.tilda.ws))
   
   [My telegram](https://t.me/mozhnopersik)
   
