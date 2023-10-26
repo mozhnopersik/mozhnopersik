@@ -17,7 +17,7 @@ Thank you :)
   
 ### You can find me on:
 
-  [My LinkedIn](https://www.linkedin.com/in/sopeachydev/)
+  [My LinkedIn](https://sopeachy.dev/linkedinerror)
   
   [My web site](https://www.sopeachy.dev/](http://sopeachydev.tilda.ws))
   
