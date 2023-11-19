@@ -1,5 +1,5 @@
 # Hi there, it's Rony✨
-### So peachy 🍑 IOS-developer
+### So peachy 🍑 iOS-developer
 I recently started my journey as a developer, but I already knew for sure that this is my passion. I like to realize every day that there are no impossible tasks in development, there is only the right approach to solving them. I discovered that development is a whole world in which you can use its own laws in any way you need.
 
 During my studies, I discovered an amazing ability to independently study even the most difficult concepts for me. And I like to dive deeper and deeper into this area.
